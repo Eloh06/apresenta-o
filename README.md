@@ -1,1 +1,1 @@
-# josi
+# olá me chamo Eloiza, tenho 17 anos moro em Guaratuba-PR mas nasci em Porto-velho-RO e estudo no colégio Joaquim da silva Mafra,moro com minha mãe e meu padrasto,atualmente estou trabalhando como jovem aprendiz na Internacional Maritima,sou uma pessoa eclética em relação a música gosto de tudo um pouco, como psassatempo gosto de ler e desenhar.
